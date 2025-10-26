@@ -10,5 +10,5 @@ Looking forward to improving my collaboration skills and becoming more confident
 
 ## GitHub Profile
 
-You can view my personalized GitHub profile [[here, insert link to your github profile]](https://github.com/22106378)]
+You can view my personalized GitHub profile [[here, insert link to your github profile]](https://github.com/22106378)
 
